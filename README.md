@@ -7,13 +7,9 @@ Step 2
 
 Read the text and choose an option.
 
-Step 3
+Steps 3-4
 
 Repeat step 2
-
-Step 4
-
-Repeat steps 2 and 3
 
 Step 5
 
